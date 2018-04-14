@@ -1,2 +1,2 @@
 # ps-64
-### 64位crack文件
+### sixty-four Bit cracking file
